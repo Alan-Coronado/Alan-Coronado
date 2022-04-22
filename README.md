@@ -1,1 +1,3 @@
 - Hi, I’m @Alan-Coronado
+- https://www.linkedin.com/in/alancoronado/
+- https://alancoronado.com/
